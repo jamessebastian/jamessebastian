@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @jamessebastian
 - 👀 I’m interested in ...football
-- 🌱 I’m currently learning ...enterprise soft dev
 - 💞️ Open to work
 - 📫 How to reach me ...jamessebastian916@gmail.com, +1 6479894442
 
